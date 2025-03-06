@@ -14,4 +14,4 @@ You can click the Preview link to take a look at your changes.
 
 https://ud.me/zencrypto.unstoppable
 https://app.binance.com/uni-qr/cpro/Square-Creator-b08e6bfc5a87?l=en&r=818739537&uc=app_square_share_link&us=more
-https://seirmprod.servicenowservices.com/dos/
+https://ud.me/zencrypto.unstoppable
