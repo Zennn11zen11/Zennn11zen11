@@ -11,6 +11,7 @@ Zennn11zen11/Zennn11zen11 is a ✨ special ✨ repository because its `README.md
 You can click the Preview link to take a look at your changes.
 --->
 0xdE2A668A2A3489072A66B6E4e70Bb2EbA0520498
-https://minepi.com/Ewaznazari
+
+https://ud.me/zencrypto.unstoppable
 https://app.binance.com/uni-qr/cpro/Square-Creator-b08e6bfc5a87?l=en&r=818739537&uc=app_square_share_link&us=more
 https://seirmprod.servicenowservices.com/dos/
